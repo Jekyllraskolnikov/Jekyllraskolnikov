@@ -1,6 +1,1 @@
-⿻.⇅.❱❱.❀ Will Wood best fan  ‹𝟹
-- ☆ ୭₊ Non﹒binary ꒷꒦‧₊˚
-- ☆ Saw • Bsd • LAW OF TALOS fandom
-- ☆ All ﹒pronous﹒Ꮺ₊˚⊹˚₊ 
-- ☆﹒︵˚⊹જ Lemon Demon,TALLY HALL Fan #
-- ☆｡˚๑ദ﹕  Weird Kidd >:D﹒☆.e
+![image](https://github.com/user-attachments/assets/b641a74a-fd70-4671-80df-5503d8876723)
